@@ -2,7 +2,7 @@
 ### 当前有效网址：<br>
 ### http://6.xy.z86.ru/<br>
 ### http://6.jd.qlbv.vn/<br>
-### http://nu4.edns.biz/<br>
+### http://sog.otzo.com/<br>
 ### http://828.ddnsking.com/<br>
 
 
