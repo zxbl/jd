@@ -3,7 +3,7 @@
 ### http://6.xy.z86.ru/<br>
 ### http://6.jd.qlbv.vn/<br>
 ### http://sog.otzo.com/<br>
-### http://828.ddnsking.com/<br>
+### http://35.servegame.com/<br>
 
 
 <a href="http://6.jd.qlbv.vn/zx/" target="_blank"><img src="http://6.jd.qlbv.vn/pic/2016/11/p7829911a215010452.jpg">
