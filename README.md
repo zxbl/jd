@@ -2,7 +2,7 @@
 ### 当前有效网址：<br>
 ### http://6.xy.z86.ru/<br>
 ### http://6.jd.qlbv.vn/<br>
-### http://sog.otzo.com/<br>
+### http://jd.85.homeunix.org/<br>
 ### http://35.servegame.com/<br>
 
 
