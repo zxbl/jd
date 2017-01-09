@@ -2,7 +2,7 @@
 ### 当前有效网址：<br>
 ### http://6.98.lebtimnetz.de/<br>
 ### http://6.93.is-a-nurse.com/<br>
-### http://jd.85.homeunix.org/<br>
+### http://jd.519.familyjam.es/<br>
 ### http://jd.33.is-found.org/<br>
 
 
